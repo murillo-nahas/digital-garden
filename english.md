@@ -8,5 +8,5 @@
 - [Bob The Canadian](https://www.youtube.com/@LearnEnglishwithBobtheCanadian)
 - [Prof. Kenny](https://www.youtube.com/@PROFESSORKENNYOFICIAL)
 
-Just for a reminder, that's not all the fonts that I use to learn english, but these are the principals.
+Just for a reminder, that's not all the fonts that I use to learn english, but these are the main ones. <br>
 I also learn English by watching videos on youtube, tv shows, movies, reading articles, etc.
